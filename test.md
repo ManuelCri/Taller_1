@@ -27,3 +27,5 @@ Si hay respuesta positiva a cualquiera de las preguntas anteriores, continúa:
 9.-En un porcentaje elevado de casos también está asociada al dolor.
 
 https://screening.mhanational.org/screening-tools/test-de-depresion/
+
+pro y contra del lenguaje que nos toco
